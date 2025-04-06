@@ -46,7 +46,7 @@
 ---
 
 ### 💬 Let's Connect!
-- 🌐 [LinkedIn]([https://www.linkedin.com/in/khushal-patil/](https://www.linkedin.com/in/khushal-patil-b375ba236/)])
+- 🌐 [LinkedIn](https://www.linkedin.com/in/khushal-patil-b375ba236/)
 - ✉️ Email: khushalhp2403@gmail.com
 - 📸 Portfolio coming soon...
 
